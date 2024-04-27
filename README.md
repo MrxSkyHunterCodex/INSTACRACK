@@ -1,5 +1,5 @@
 # INSTACRACK
 Untuk mengkrek instagram
-catatan jangan terlalub banyak menggunakan terminal
+catatan jangan terlalu banyak menggunakan terminal
 disarankan akun tumbal
   tools ini free 
