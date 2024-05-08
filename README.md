@@ -5,8 +5,20 @@ disarankan akun tumbal dan tools ini 100% free
 
 
 
->>knp saya? tidak menampilkan hasil
->>dikarenakan saya tidak mau kalau >>sc ini ada di google pencarian >>menu foto jadi nyari sc ini susah >>susah gampang😁
+
+
+
+
+
+
+knp saya? tidak menampilkan hasil
+dikarenakan saya tidak mau kalau sc ini ada di google pencarian menu foto jadi nyari sc ini susah susah gampang😁
+
+
+
+
+
+
 
 
 
